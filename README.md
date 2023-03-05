@@ -1,6 +1,12 @@
-roblox studio scripter,
-html + js programmer,
-turbowarp (scratch) scripter,
-gamemaker studio scripter
+🐈ACaracalCat
+💬Discord: sugima#2590
 
-i make random repos
+🔨Roblox Game Dev
+📜Roblox Scripter
+💻Javascript Experience
+📺HTML Experience
+📸CSS + UI Designer
+
+🕹Gamer🕹
+🍃Doesn't touch grass🍃
+🚿Does not shower🚿
