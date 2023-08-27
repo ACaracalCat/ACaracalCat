@@ -1,5 +1,1 @@
-🐈ACaracalCat
-💬Discord: sugima.
-
-💻Javascript Experience
-📺HTML Experience
+msg me on discord if u want: sugima.
